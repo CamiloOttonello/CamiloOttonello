@@ -2,4 +2,4 @@
 - 👀 I’m interested in work with my mind
 - 🌱 I’m currently learning 
 - 📫 How to reach me: camilottonello@gmail.com
-- ⚡ Fun fact: I´m smarter than you
+- ⚡ Fun fact: 
